@@ -7,3 +7,5 @@
 - ⚡ Curiosidade: Sou uma pessoa extrovertida, mas ao mesmo tempo timida
 
 ![](https://media1.tenor.com/m/Pi6h3hHEDxwAAAAC/rebelde-rbd.gif)
+
+![](https://media1.tenor.com/m/1pLfhCnGfBoAAAAC/anahi-rbd.gif)
