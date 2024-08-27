@@ -1,5 +1,5 @@
 - 👋 Oi, eu sou @Eduardosantos2009
-- 👀 Estou enteressado em aprnder novas coisas
+- 👀 Estou enteressado em aprender novas coisas
 - 🌱 estou aprendendo atualmente: espanhol 
 - 💞️ Estou procurando colaborar no que eu puder
 - 📫 Como entrar em contato comigo: pelo meu meu email
